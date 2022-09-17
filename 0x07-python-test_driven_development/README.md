@@ -1,0 +1,1 @@
+This readme will be update one day in sha Allah if i find my energy. It has been a rough period laden with demotivations couple with several de-spiriting factors for me. For someone that has always wanted to be a computer "nerd"; I have been doin a really shitty job at equipping myself with the necessary knowledge and sharpening my previous skills.
